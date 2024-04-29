@@ -1,3 +1,0 @@
-# Jafda
-# Jafda
-# Jafda
